@@ -1,1 +1,1 @@
-Click in this link to view the website - http://juhisharma.me/tindog/
+Click in this link to view the website - http://juhik24.github.io/tindog/
